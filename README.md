@@ -1,2 +1,2 @@
 # Vaishnavipula.github.io
-# prabhu
+# Thanu
